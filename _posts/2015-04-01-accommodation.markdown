@@ -8,11 +8,11 @@ Queer Collaborations 2015 will not be providing delegates with accommodation.  T
 
 We recommend staying with the Canberra YHA, as they are close to the conference and the city, and have the cheapest rates.  They have kindly provided delegates with a 10% discount as below:
 
-4 Share dorm - $36 per person per night
-8 Share dorm - $33 per person per night
-Twin/Double room - $103 per room per night
-Twin/Double en-suite room - $148 per room per night
-5 Beds en-suite room - $180 per room per night
+* 4 Share dorm - $36 per person per night
+* 8 Share dorm - $33 per person per night
+* Twin/Double room - $103 per room per night
+* Twin/Double en-suite room - $148 per room per night
+* 5 Beds en-suite room - $180 per room per night
 
 All bookings for the YHA need to be placed via calling (02) 6248 9155 or e-mail canberracity@yha.com.au, quote “QC15” or Queer Collaborations for the discounted rate. The discounted rates are not bookable via any other booking channels.  If anything happens to you while staying at the YHA the hostel reserves the right to move people to other rooms or to remove people from the premises and cancel their stay.
 
