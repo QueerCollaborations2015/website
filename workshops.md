@@ -36,10 +36,6 @@ This is a space for conversation about the objectification and fetishization of 
 
 UNSW Buff Club is a body-positive workout group. The idea is recycled from Buff Clubs held in Melbourne and Newtown, which were created as safe spaces for those who feel uncomfortable in gyms, because of the machismo, gender stereotyping and body-shaming that can be present, or because they simply couldn't afford to go.   The group's focus is on physical strength and mental health, because exercise is a great tool for dealing with stress. We do not use body shaming tactics as so called motivation, and no-one is obligated to complete any exercises they feel unable to or do not want to. We begin each workout with a conversation about body-positivity or body image and discuss how we can create a positive space for exercising. The workout will run for 30 mins with three 6 min intervals followed by stretching. Please bring comfortable clothes, a bottle of water and a towel if necessary. 
 
-## YouForgotTheT:Trans Women in Feminism
-
-This workshop will discuss trans women's experiences in feminism, and how trans women's voices were marginalized, and to some extent continue to be marginalized in feminist spaces, as well as detailing the constant violence that is perpretrated by cis people against trans women.
-
 ## Postgrad Catchup
 
 A space to meet other postgrads and discuss what you want for the postgrad queer world, including directing the Queer Officer of the Council of Australian Postgraduate Associations.
