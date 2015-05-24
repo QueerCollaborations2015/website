@@ -39,3 +39,17 @@ UNSW Buff Club is a body-positive workout group. The idea is recycled from Buff 
 ## Postgrad Catchup
 
 A space to meet other postgrads and discuss what you want for the postgrad queer world, including directing the Queer Officer of the Council of Australian Postgraduate Associations.
+
+## Mentors in Violence Prevention
+
+Mentors in Violence Prevention (MVP) is an evidence-based program that is designed on best
+practices developed over two decades of dealinglivering gender violence prevention and education
+trainings with diverse and varying populations. The MVP model uses a bystander approach to
+prevention and intervention that empowers leaders to thinking more critically and personally
+about intimate partner and sexual violence.  This approach decreases defensiveness and
+helplessness and enables participants to develop concrete options for intervention in the face
+of harmful and abusive behaviour.
+
+MVP Australia has developed curriculum for LGBTIQ communities to create an opportunity to
+have a conversation about the ways intimate partner and sexual violence impact their lives and
+the lives of those they care about.
