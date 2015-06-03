@@ -12,7 +12,7 @@ If you would like to run your own workshop, please submit [here](https://docs.go
 
 Teaching how to make spaces inclusive and supportive of sex workers, dispelling myths about the sex industry from an intersectional perspective. 
 
-## Bi- and pan-sexuality: Antagonism, invisibility and erasure
+## Bi- and Pan-sexuality: Antagonism, Invisibility and Erasure
 
 Bisexuality has been part of the LGBTIQA+ acronym for years, but is still viewed by many with suspicion. In this workshop we explore how bi/pan antagonism, invisibility and erasure manifest both within mainstream society and the LGBTIQA+ community, including how compulsory monogamy interacts with non-monosexuality. We will critically engage with the term 'bisexual' itself and why many people who experience fluid attraction or are attracted to more than one gender do not identify with the label and/or the LGBTIQA+ community. In light of this we will discuss the barriers to building community around non-monosexuality and brainstorm ways of improving the visibility and inclusion of non-monosexual people.
 
@@ -28,7 +28,7 @@ Coming out stories workshop.
 
 Marxism offers a relevant and potent critique of identity politics, privilege theory, intersectionality and queer theory.
 
-## "Fuck Yeah Hot Lesbians": The fetishization of queer women's relationships
+## "Fuck Yeah Hot Lesbians": The Fetishization of Queer Women's Relationships
 
 This is a space for conversation about the objectification and fetishization of relationships between queer women. We recognise that this objectification affects people of other genders who may experience oppression as women as well. In the workshop, we will be exploring fetishization as an aspect of homophobia and biphobia and will be discussing personal experiences as well as media representations.  (This workshop is autonomous (only open) to women and sex and gender diverse identifying people.)
 
@@ -53,3 +53,19 @@ of harmful and abusive behaviour.
 MVP Australia has developed curriculum for LGBTIQ communities to create an opportunity to
 have a conversation about the ways intimate partner and sexual violence impact their lives and
 the lives of those they care about.
+
+## Poetry is Power: Queer Narratives as Means of Accessing Political Discourse
+
+Too often marginalised identities (especially queer identities) are excluded from political discourse. In the last fifteen years, there has been a resurgence of poetry produced as a means of re-entering this discourse by such groups. In this seminar-style workshop, we will look at some methodologies that have been used to create power out of our words and bodies, and discuss other possible methods of creating queer political poetry. This workshop will incorporate traditionally published, slam, and online poetry.
+
+## Communication for Change
+
+This workshop aims to teach people about the different ways of changing people's opinions and behaviours.  There will be a focus on campaigns that students and student organisations can run to improve their university.
+
+## Dysphoria and Medical Transition
+
+Ever wondered what gender dysphoria is?  What the leading theories of the cause for gender dysphoria are?  Have you ever been curious about the various medications, therapies and surgeries that are available for transgender people to alleviate dysphoria?  Then this workshop is for you.
+
+## Science of Sex, Sexuality and Safe Sex
+
+This workshop will be about sex!  But it will also be about science (sorry).  We'll be discussing the science of sexuality and how to make sex as safe as possible.
