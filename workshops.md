@@ -69,3 +69,67 @@ Ever wondered what gender dysphoria is?  What the leading theories of the cause 
 ## Science of Sex, Sexuality and Safe Sex
 
 This workshop will be about sex!  But it will also be about science (sorry).  We'll be discussing the science of sexuality and how to make sex as safe as possible.
+
+## Ending Queer Youth Homelessness
+
+Homelessness disproportionately affects queer youth in many ways, such as being forced out of home due to sexuality and/or gender and the lack of services safely accessible by queer youth.
+
+This workshop will explore some of the factors behind queer youth homelessness and the ways in which queer collectives, student networks and community organisations can support homeless queer youth and end queer youth homelessness.
+
+The workshop will conclude with an action plan for a national Ending Queer Youth Homelessness campaign to be run through the Australian Queer Student Network (AQSN) and relevant organisations, charities and queer collectives starting Semester 2, 2015. 
+
+## Queer Student Networks
+
+State and national queer student networks have the potential to pool (often leftover) resources of campus queer collectives, run state campaigns and support those run nationally, host great social and networking events and provide services for queer students in need.
+
+From 2014, we have seen queer student networks begin to activate across the country, some with active budgets and large fundraising events that have sent delegates to QC and organised large queer student campaigns.
+
+This workshop will explore the potential of queer student networks, methods to establish and generate support for these networks, what these networks should look like and how they should be run. It will draw on current and past successes and failures and draw up resources to support queer student networks forming and working effectively.
+
+## Self-defence by a trans woman
+
+Not autonomous, just be aware transphobic bullshit won't be tolerated. Leftists very welcome. I am a qualified instructor in Krav Maga. Attacks against trans women (particularly of colour) are brutal and so the defence will be brutal. I want to give everyone a technique to defend themselves from violence in the workshop and will endeavour to specifically address the needs of disabled people but this is not something I have been trained to do; I will try. If hearing a clinical description of violence and seeing it (and the defence against it) performed is something you are unable to deal with for whatever reason, I would advise not attending as it is unfortunately necessary given the context of the workshop. If you need to leave during the workshop that is perfectly okay and you may either leave on your own, a volunteer will take you where you need to go, or I will happily pause the class to make sure you get somewhere safe.
+
+## An aro to the heart: Aceing relationships
+
+This workshop will cover the basics of ace and aro relationship theory and how it can be applied to any relationship. 
+
+## QUIDDITCH
+
+Quidditch is a mixed gender sport, so, that's relevant to queer*, right? Right. I mean, mostly I just want to play quidditch, and so should you!
+
+We'll quickly go over how to play at each session before getting into some casual games for the rest of the hour (each game being approximately 20 minutes). Yes, you will be required to run around with a broom between your legs.
+
+If you wanted to have a super basic look at how to play, feel free to visit the [rulebook](http://www.iqaquidditch.org/rulebook.php).
+
+## Queer Cyber Safety
+
+Staying safe online is important for everyone, especially queer and gender diverse people.
+
+We'll cover everything from staying safe while using dating apps, how to restrict what is shown on your Facebook profile, to general online tips and tricks that you mightn't have seen before with interactive group discussions and a Q&A session to finish!
+
+## Achieving Gender Neutral Bathrooms
+
+Swinburne University have secured gender neutral bathrooms and this workshop will share step by step how this was achieved and as a group we can share ideas of how you can achieve them at your university.
+
+## Conference Floor and Motions 101
+
+Coming to Queer Collaborations for a first time and keen for Conference Floor?
+Been before but didn't really engage with Conference Floor?
+Have a great idea for a motion but don't know how to put it to Conference Floor?
+Come along to this workshop where we'll run through how Conference Floor works, how to write motions and generally attempt to demystify Conference Floor.
+
+## Crochet 101
+
+Learn some crochet from the very beginning. This is a hands-on workshop. Supplies (and therefore numbers) are limited.
+
+## Crafternoon
+
+Craftivism is about acknowledging the awesome power of feminised forms of art to unleash creativity, achieve political goals and bind communities together. Crafts have a long history in activism: coded patterns have been built into quilts and fabrics, knit ins have eroded the public/private binary and self-expression through art can give voice to the marginalised. Craftivism can be powerful too -- activists dancing in giant tampon suits in front of Parliament House made the national news.
+
+This community workshop will play around with the theme "Queer at Heart" and will ask participants to decorate squares of fabric using fabric paints, needles, thread, yarn and fabric. These squares will be sewn together to create a quilt-like banner or wall hanging. This banner could feature in the end of week action or beautify a queer space.
+
+Because crafting materials cost money, participants are invited to make an optional donation to cover the cost. Crafting supplies will also be greatly appreciated.
+
+We will also need a supply of scrap paper to keep surfaces clean, and are hoping that Canberra residents can stockpile some.
+
