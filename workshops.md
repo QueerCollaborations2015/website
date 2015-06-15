@@ -133,3 +133,60 @@ Because crafting materials cost money, participants are invited to make an optio
 
 We will also need a supply of scrap paper to keep surfaces clean, and are hoping that Canberra residents can stockpile some.
 
+## How to run QC
+
+Do you want to run a Queer Collaborations? In this workshop members from QCOC 2015 will describe how they organised the conference, the things that were easy, the challenges, and what you should keep in mind when running your QC.
+
+## Queer and Kinky
+
+Queer & Kinky will discuss various forms of kink within the queer community. There are many types of non-vanilla sexual interests enjoyed by some queers & non-queers with some of the more common ones including (but certainly not limited to): BDSM, Role-Play, Leather, Sock/Foot fetishes etc.
+
+This workshop will be divided into two sections with the first part providing a more general exploration of kink & issues faced by kinky queers. In the second part we will then discuss ideas for how collectives could potentially support and establish safer spaces for kinky queer uni students to connect with each other and access important resources.
+
+#### Part 1
+
+- Diversity of kinks & fetishes
+- Mainstream misperceptions & stereotypes
+- Connecting with other kinksters (including through existing groups & online)
+- How to develop a healthy self-acceptance & self-esteem about having kinky interests
+
+#### Part 2
+
+- A look at some of the established student kink societies which exist at different universities around the world including groups at UK and US unis. These groups act as social, support & discussion groups and provide a safer, non-judgemental environment for like-minded people to hang out.
+
+- Discussion about whether similar clubs could be implemented at Australian unis including the benefits & challenges of doing this.
+
+- Discussion of other ways collectives have approached kink & related topics through workshops etc. or ideas for how they can do this in the future.
+
+_Anyone is welcome to attend whether you're kinky, curious or just interested in learning more. However, please keep in mind that many people attending may not be fully open about their interests in kink. Also, the discussion of any kinks & fetishes in this workshop will follow the principles of Safe, Sane & Consensual and anyone who does not respect this will be asked to leave._
+
+## 'I want to [verb] your [noun]' - Negotiating Enthusiastic Consent
+
+Negotiating enthusiastic consent in the bedroom (or the dungeon) doesn't have to be hard and it definitely doesn't have to be awkward. By first looking at the ways in which an enthusiastic consent framework is used in kink contexts, we can extrapolate this to see how enthusiastic consent negotiations everywhere can be fun and downright sexy!
+
+## Play Piercing 101
+
+Needles don't always have to be a bad thing!
+Play piercing involves the use of sterile hypodermic needles inserted through the skin. Depending on the types of needles used and the location of the piercing, it can be a form of art, a sadomasochistic pursuit that leaves everyone floating, or a form of BDSM play that really gets under your skin.
+This session will include a discussion about the materials you will need, where to find them, the proper way to use/dispose of them, safety considerations, as well as a demonstration of (some of) the techniques you can use to explore this type of SM play.
+
+## Fighting and winning marriage equality
+
+The fight for marriage equality kicked off in 2004, when the Liberal party under PM John Howard and ALP voted to ban same-sex marriage. After a fierce grass roots struggle lasting eleven years, we are on the cusp of a great victory. But we are not there yet. We call on the ALP and the Coalition to stop playing with our lives. They are point scoring with our rights, our relationships. We want full equality, and we want it now. The campaign is demanding the all parties put a bill, and pass a bill. When we win marriage equality, the fight for trans and intersex rights, the fight to remove the right for churches to sack LGBTIQ people from their jobs, and their schools, and the fight to free queer refugees, among many battles, still remain. Come and hear about the history of this campaign, how we can win it, and the fight for full rainbow liberation.
+
+Presenter: Rachel Evans has been an active campaigner for marriage equality since 2004 in Sydney's Community Action Against Homophobia ,NUS Queer office in 2007, and is the acting SUPRA Queer officer for 2015/2016
+
+## The origins of queer and women's oppression - a material analysis of oppression
+
+Have lesbian, gay, bi-sexual, transgender and intersex, queer, asexual (LGBTIQA) people been oppressed? Have women always been second class citizens? No! This workshop will explain how sexism, homophobia and racism developed. Oppression has a material basis. With class society came the oppression of women and establishment of rigid gender binaries that oppress LGBTIQA people. Women and LGBTIQ oppression is systematic - built into the economic, political and cultural structure that make up our society. Many of us at Queer Collaborations will be dedicated to the fight against oppression in all its forms. To make the most of our efforts in this fight we need to understand where our oppression originates from, so we can get to the heart of who our enemies are, who to target, and how we can win our liberation.
+
+## Rainbow Revolutions, Cuba and Venezuela, Latin America
+
+The Latin American anti-capitalist revolutions - led by Cuba in 1959, and followed today by Venezeuala, Ecuador, Bolivia and others, have advanced rights for the poor, and the rainbow community.
+In Australia homeless queers go hungry on the street - in Cuba no one is homeless. In Australia we have rising rates of HIV. In Cuba AIDS drugs are given away for free - all health care is free. 
+In Australia transgender operations can be up to $20,000. 
+In Cuba they have made a special effort to educate surgeons to carry out transgender operations with Mariela Castro leading a sexual rights revolution. 
+Trans operations are free. Education is free. The revolution provides for all basic needs. Has the anti-capitalist Cuban revolution, that took place in 1959, been a haven for queers? Pride parades are growing exponentially. All of this is great news for queers. Perhaps the best news we've heard in years. How does all of this sound to you? Perhaps it sounds too good to be true? Venezuela, and their unfolding revolution, after 1999, is a beacon for the poor and marginalised. How has it treated queers? A good deal, or a bit raw? Come to this forum and find out more. The Latin American revolutions are just too exciting to ignore.
+
+
+
