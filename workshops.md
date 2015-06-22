@@ -188,5 +188,74 @@ In Australia transgender operations can be up to $20,000.
 In Cuba they have made a special effort to educate surgeons to carry out transgender operations with Mariela Castro leading a sexual rights revolution. 
 Trans operations are free. Education is free. The revolution provides for all basic needs. Has the anti-capitalist Cuban revolution, that took place in 1959, been a haven for queers? Pride parades are growing exponentially. All of this is great news for queers. Perhaps the best news we've heard in years. How does all of this sound to you? Perhaps it sounds too good to be true? Venezuela, and their unfolding revolution, after 1999, is a beacon for the poor and marginalised. How has it treated queers? A good deal, or a bit raw? Come to this forum and find out more. The Latin American revolutions are just too exciting to ignore.
 
+## Knit and Knatter
+
+Come and relax of the stress of QC with some knitting and crochetting!
+
+Bring you knitting needles, crochet needles, sewing, wool or anything really!!
+There will be someone there to help if you want to come and learn how to knit or crochet and free wool and needles for those who have forgotten to bring theirs!
+
+## Queer and Tea
+
+Brewing tea is an artform, it's history extends beyond the simply placing a tea bag in the cup.  
+
+This workshop will take form in an environment which is both safe and inclusive of all queer identifying people. It aims to provide participants with a lesson in how to brew tea; (offering attendees to taste samples) and what benefits differing teas may bring. 
+
+A discussion will take place, in which all participants will feel free to engage in topics they feel are most relevant to our struggles as a queer students. In hopes this will form life-long bonds and connections. 
+
+## Mental Health and the Queer Community
+
+A look into how mental health and queer issues interact, possible influences and causes of mental illnesses in the queer population, and potential solutions to the problem. 
+
+## Polyamory 101 and Poly Panel
+
+A brief introduction to polyamory and other forms of non-monogamy including open relationships, hierarchical relationships and relationship anarchy.
+
+This will be followed by a panel discussion where the audience can ask questions about non-monogamy to a variety of people within the poly community.
+
+## SHFPACT Safer Sex
+
+Nothing’s sexier than staying safe during sex. Erin Smith from Sexual Health and Family Planning ACT will be sharing with participants the ‘ins and outs’ of safer sexual practices for same sex attracted, intersex and gender diverse peeps. Erin will take a holistic approach to staying safe by discussing consent, sexy decision making skills, preventing STIs, toys, kink,  BDSM and celebrating healthy diversity. So school sex education left you feeling high and dry, this won’t!
+
+## Queerying the Law
+
+Knowledge is power.
+
+And so this workshop will seek to empower Queer students to understand the legal system, and their rights under it.
+
+Issues of interest generally are:
+
+- Domestic Violence
+- Police Powers
+- Relationships and Separation
+
+But to best run this, we need to know your chief concerns and areas you'd like clarified, so people are able to email us at queeryinglaw@gmail.com to help guide the workshop.
+
+This workshop will be run by Queensland Law students. 
+Thomas Parer is a fifth year Law/Arts student, with experience in working in a family and criminal firm, and has worked in the LGBTI Legal Service.
+
+Annie Danks is a final year Arts/Law student and the UQU Queer Officer.   She's been involved in campaigning for law reform and has spoken to way too many politicians for her taste.
+
+## Introduction to Bondage
+
+Bondage is a sensual way for people to connect and exchange power.  Through bondage it is possible to surrender control to another person and with trust and safety let go. For the person doing the bondage, the sense of power afforded you when you control another person is an immense and humbling experience.
+
+This workshop will discuss the basics of bondage including an introduction to consent and safety including pre-play discussion and negotiation, safe words, safety equipments and practices and what to do if things go wrong.
+
+Next we will discuss the reasons people tie up or restrain each other.  This is the most important part of the workshop.  Why you tie or restrain someone is more important than how you restrain them and we'll talk about how to put your intent at the forefront of play.
+
+We will then discuss the various forms of bondage including rope, cuffs, chains, cages, household items and even talk about how to do bondage with just your mind!
+
+Finally we will get into trying a few simple techniques for bondage using rope.  There will be a chance for people to learn and try some really basic rope techniques and to practice on themselves or with a friend.  You will learn 2-3 different ways to tie someone up in several different scenarios.
+
+I will provide samples of a several different types of rope for people to try out and practice with and some safety equipment on the day. I also sell EMT shear (safety scissors) if people want some on the day.
+
+A handout will be provided with information on resources for bondage including details on books and websites I recommend and place to buy equipment and safety gear.
+
+## Is the queer community really inclusive of all queer people?
+
+Is the queer community really inclusive of all queer people? This is a workshop where we take the time to focus on dissecting the varying complex facets of queer activism, questioning whether the rich diversity of the queer community is truly well-represented within itself.
+
+From whitewashing to pinkwashing, sexism to erasure, racism to biphobia and transphobia being perpetuated within the queer community, we would like to make sure that issues are discussed and listened to in a healthy manner so that we can tackle them, in order to better address the implications of failing to tackle them properly. Who knows, one day we may even be able to bake a cake full of rainbows and smiles, and everyone would eat and be happy...
 
 
