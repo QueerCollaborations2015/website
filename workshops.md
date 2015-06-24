@@ -258,4 +258,19 @@ Is the queer community really inclusive of all queer people? This is a workshop 
 
 From whitewashing to pinkwashing, sexism to erasure, racism to biphobia and transphobia being perpetuated within the queer community, we would like to make sure that issues are discussed and listened to in a healthy manner so that we can tackle them, in order to better address the implications of failing to tackle them properly. Who knows, one day we may even be able to bake a cake full of rainbows and smiles, and everyone would eat and be happy...
 
+## Jewellery Making 101
+
+This is a hands-on workshop where you can learn about making your own jewellery from the very beginning! You will even be able to make your own necklace, bracelet, or earrings out of beads, wire, clasps, and tigertail. Supplies (and numbers) are limited.
+
+## HIV Risk and Prevention
+
+What do you need to know about HIV?  Living with HIV, prevention, transmission, safer sex and PEP with plenty of time for questions in a non-judgemental environment.
+
+## Workshop on running women's workshops
+
+Stepping Out: Discuss ideas about how to run a fun interactive coming out workshop for queer, lesbian, bisexual, asexual women, who are interested in same sex relationships with other women. Stepping Out workshops can be fun to attend but cover  important topics such as internalised and externalised homophobia, meeting women, speed networking, finding friends, lovers and a community, Promoting healthy relationships in the LGBTIQ community and preventing Domestic Violence and Sexual Assault.
+
+## Safer Injection
+
+We can answer any questions in a non-judgemental environment.  Run by the Aids Action Council.
 
