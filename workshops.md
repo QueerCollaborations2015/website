@@ -8,10 +8,6 @@ Below is a list of workshops that have been submitted.
 
 If you would like to run your own workshop, please submit [here](https://docs.google.com/forms/d/1iFy1pa7OQhltZuHkO3znH08HnYIxXtARj7c_TRWtU9g/viewform?usp=send_form).  Applications close on the 15th of June.
 
-## Sex Industry 101
-
-Teaching how to make spaces inclusive and supportive of sex workers, dispelling myths about the sex industry from an intersectional perspective. 
-
 ## Bi- and Pan-sexuality: Antagonism, Invisibility and Erasure
 
 Bisexuality has been part of the LGBTIQA+ acronym for years, but is still viewed by many with suspicion. In this workshop we explore how bi/pan antagonism, invisibility and erasure manifest both within mainstream society and the LGBTIQA+ community, including how compulsory monogamy interacts with non-monosexuality. We will critically engage with the term 'bisexual' itself and why many people who experience fluid attraction or are attracted to more than one gender do not identify with the label and/or the LGBTIQA+ community. In light of this we will discuss the barriers to building community around non-monosexuality and brainstorm ways of improving the visibility and inclusion of non-monosexual people.
@@ -274,3 +270,10 @@ Stepping Out: Discuss ideas about how to run a fun interactive coming out worksh
 
 We can answer any questions in a non-judgemental environment.  Run by the Aids Action Council.
 
+## Touch-a, Touch-a, Touch Me: Sensation Play Skills for Beginners 
+
+By far the most poorly defined discipline in the kink world, Sensation Play involves utilising the interplay between pleasure and pain, and stimulation and deprivation to create intense and intimate experiences. Siren Vandoll has spent more than four years tirelessly developing and perfecting her sensation play repertoire and knowledge through personal research, mentorship from some of Australia’s most prominent players and a lot of trial-and-error. In this skill-based workshop Siren will teach you the basics you need to begin your sensation play journey; including tactile implements like feathers, talons and pinwheels, entry-level temperature play, some useful anatomy, as well as scene structure and safety, negotiation and hygiene. She will also discuss ways to integrate sensation elements into your regular scenes, and demonstrate some more advanced techniques such as electro, knife and fire play. This workshop works best with a (non-sexual) contact-friendly buddy to practice on, but is still valuable for those more comfortable watching. 
+
+## Sexy, Kinky and Absolutely Terrified: A Primer for Fledgling Kinksters 
+
+So, You know you’re kinky… but now what? In this session, Siren will cover everything you need to know about exploring your sexuality in safe but exciting ways. This workshop will help you learn about and find your place in the BDSM world, develop your identity and better understand your kinks, needs and fetishes. Siren will discuss the most popular kinds of play and cover the basic skills involved. The class will cover ways to stay physically, emotionally and psychologically safe on your journey and how to get the most out of your experiences. While aimed at beginners in the public scene, the seminar will also assist those hoping to explore in private and help more experienced kinksters guide and mentor newbies in their own communities. 
